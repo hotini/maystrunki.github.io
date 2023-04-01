@@ -1,0 +1,1 @@
+# maystrunki.github.io
